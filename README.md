@@ -15,7 +15,7 @@ HDFILME - Stream HD Filme Online Kostenlos Anschauen in Deutsch, Kinofilme 2023 
 
 • Overview : Dominic Toretto ahnt nicht, dass seine Taten, die Jahre zurückliegen, tiefe Spuren bei dem mittlerweile mächtigen Dante hinterlassen haben. Dieser sinnt nun auf Rache und will die ganze Toretto-Familie auseinanderbringen. Es entbrennt eine Rachegeschichte, die alle Mitglieder der Original-Crew, aber auch Deckard Shaw, Bruder Jakob sowie den Neuzugang Tess auf den Plan ruft. Diese haben fortan alle Hände zu tun, um sich gegen den Gegenspieler sowie dessen Gefolgschaft samt Cipher und Aimes zur Wehr setzen zu können. Da Dom nicht jeden aus der großen Familie beschützen kann und der rachsüchtige Rivale vor nichts zurückschreckt, wird er vor die schwierigste Wahl seines Lebens gestellt: Wen wird er retten?
 
-[![68747470733a2f2f7374617469632e7769787374617469632e636f6d2f6d656469612f3835356132355f30343362356162656234616534643335616330303331393865376665353665647e6d76322e676966](https://static.wixstatic.com/media/855a25_043b5abeb4ae4d35ac003198e7fe56ed~mv2.gif)](https://burningseries.info/filme/godzilla-x-kong-the-new-empire)
+[![68747470733a2f2f7374617469632e7769787374617469632e636f6d2f6d656469612f3835356132355f30343362356162656234616534643335616330303331393865376665353665647e6d76322e676966](https://static.wixstatic.com/media/855a25_043b5abeb4ae4d35ac003198e7fe56ed~mv2.gif)](https://pavdo.cc/films/expendables-4)
 
 Über FILM
 
